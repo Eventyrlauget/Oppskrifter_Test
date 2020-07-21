@@ -4,6 +4,8 @@ https://www.karlijnskitchen.com/en/nasi-goreng-with-home-made-spices-mix/
 
 ## Low FODMAP nasi goreng
 
+![image of nasi greng from original author](https://www.karlijnskitchen.com/wp-content/uploads/2016/02/Nasi-5.jpg)
+
 ---
 
 * *Author:* Karlijn
