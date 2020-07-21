@@ -1,7 +1,6 @@
-# A test page
+# Stekt Artisjokk
 
-test of testng test. 
+Pannestekt Artisjokk med bacon.
 
 
-using this theme:
-https://github.com/pages-themes/minimal/blob/master/README.md
+
