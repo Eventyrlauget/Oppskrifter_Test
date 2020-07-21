@@ -1,6 +1,6 @@
-# Stekt Artisjokk
+# Stekt kål
 
-Pannestekt Artisjokk med bacon.
+Pannestekt kål med bacon.
 
 
-![Stekt Artisjokk med bacon, servert med øl](Mat.jpg)
+![Stekt kål med bacon, servert med øl](Mat.jpg)
