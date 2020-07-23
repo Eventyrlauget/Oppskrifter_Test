@@ -3,7 +3,7 @@
 
 taken from: https://www.karlijnskitchen.com/en/fried-tempeh-goreng
 
-!(image from originala author)[https://www.karlijnskitchen.com/wp-content/uploads/2017/05/tempeh-goreng-1.jpg]
+![image from originala author](https://www.karlijnskitchen.com/wp-content/uploads/2017/05/tempeh-goreng-1.jpg)
 
 * *Author:* Karlijn
 * *Prep Time:* 30 mins
