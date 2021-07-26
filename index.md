@@ -1,3 +1,65 @@
+## Oreo Cake
+taken from: https://www.detsoteliv.no/oppskrift/oreokake-oreo-dream-cake
+![original_oreo_cake_image_from_author](https://www.detsoteliv.no/sites/default/files/styles/medium_preview/public/fields/images/main/img_0058_0.jpg)
+
+* *Author:* Kristine Ilstad
+* *Prep Time:* 60 mins (best case)
+* *Total Time:* 90 mins (best case)
+* *Yield:* 2.661 dm³ (same as L)
+
+Handleliste: 
+- 400g oreokjeks (eller mer)
+- 100g smør
+- 200g kremost
+- 2,5dl melis
+- 3dl kremfløte
+- 4dl helmelk
+- 2pk sjokolademousse 
+(du finner nok aldri ren sjokolademousse pakker, så de med daim, eller melkesjokolade biter er greit nok.)
+(ps. ring meg om du finner ren sjokolademousse!)
+
+
+### fremmgangsmåte
+
+Bunn:
+300 g Oreokjeks
+100 g Smør
+knus oreo kjeks, enten i en skål som tåler litt bank med en kraftig sleiv. Eller i en foodprossessor.
+smelt smøret. (i kjele, micro, sola, litt samme hvordan). 
+Bland sammen til en tykk masse og legg i en springform 22~24cm i diameter. ha gjerne noe bakepapir nederst for at det ikke skal feste seg. 
+la deretter ligge i kjøleskap til neste lag er klart (eller minimum 10 min. ish.)
+
+Fyll 1:
+200 g Cream cheese
+2,5 dl melis
+3 dl kremfløte
+50 g Oreokjeks
+Pisk sammen kremfløten til krem. om du har en kjøkken maskin kan du blandesammen melis, og kremost samtidig som kremen piskes. 
+vend forsiktig sammen kremost blandingen og kremen. 
+ta ut bunnen av kjøleskapet og legg over nok av denne blandingen til å dekke bunnen, og dryss knust oreokjeks på.
+legg deretter beggedeler tilbake i kjøleskap til den første laget er stivt nok til å ikke bli blandet ut når neste mousse lag skal på.
+(ca 15 min? orginal oppskriften sier 30. men jeg er utålmodig.)
+
+
+Fyll 2:
+2 pk lys sjokolademousse
+4 dl helmelk
+50 g Oreokjeks
+lag sjokolademousse etter anvisning på pakken.
+ha over første lag når den har stått seg stiv nok.
+dryss deretter på knust oreo. og legg i kjøleskap i ca 30 minutter. 
+
+victory lap:
+siste laget av kremblandingen legge på når de tidligere lagene er nedkjølt og stivnet. 
+når det siste laget er lagt, kutt oreo kjeks i halve, og pynt kaken. 
+
+Tada! la den kjøle seg ned, og den blir enda bedre om den står over natten. 
+
+
+!OBS!
+om det er annet som lukter mye i kjøleskapet vil dette sette smak på kaken. 
+krydret kjøtt, og løk er DANGER ZONE!
+
 
 ## Tempeh Goreng
 
